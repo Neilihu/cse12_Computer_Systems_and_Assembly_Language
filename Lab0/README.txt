@@ -1,0 +1,1 @@
+I, Neili Hu, have read and understood the Spring CSE12 syllabus and Personal Responsibility Document. nehu 5 April 2021
